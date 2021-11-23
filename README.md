@@ -2,7 +2,7 @@
 .
 
 
-> Google’s Product Experts Academy
+> [Google’s Product Experts Academy](https://mail.google.com/mail/u/0/?tab=rm&ogbl#inbox/FMfcgzGllCcNJCXDfJdSJnrfhQMQspTn)
 
 
 .
